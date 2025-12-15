@@ -77,7 +77,7 @@ The website includes real student testimonials showcasing:
 
 ## 📞 Contact
 
-📍 **Phone:** +64 21 42 24 833  
+📍 **Phone:** +91 8700442990  
 🔗 **LinkedIn:** https://www.linkedin.com/in/abdul-samad-khan-8212722a2/ 
 
 ---
